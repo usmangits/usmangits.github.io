@@ -14,3 +14,6 @@ Zorro sagte:
 > von dem du überzeugt warst,
 > es würde nicht beißen?
 > ..ich nämlich nicht..
+
+<img src="https://i.pinimg.com/originals/5b/33/46/5b334656430063c1e5154b6c7b9d9df5.jpg"/>
+
